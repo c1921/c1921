@@ -1,4 +1,4 @@
-### Hi there 👋
+### 全世界无产者，联合起来！
 
 <!--
 **c1921/c1921** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
